@@ -1,1 +1,1 @@
-Criei sozinho, estou bem felizão, vlw
+Criei sozinho, estou bem felizão, vlw... Tem que baixar o htaccess
